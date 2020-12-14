@@ -1,0 +1,2 @@
+# birinchi
+birinchi vidyo
